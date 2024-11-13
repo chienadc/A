@@ -1,1 +1,1 @@
-link chạy :https://Anhxinloiem.github.io/crush4/
+link chạy :https://viuocuatom.github.io/crush4/
